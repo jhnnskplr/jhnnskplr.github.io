@@ -69,3 +69,9 @@ In such a nation, there would not be a place for dynasties. It would become the 
 [1] Purwaningsih, Titin & Eka Cahya Widodo, Bambang. (2020). The Interplay of Incumbency, Political Dynasty and Corruption in Indonesia: Are Political Dynasties the Cause of Corruption in Indonesia?. UNISCI Journal. 18. 157-176. 10.31439/UNISCI-89. 
 
 [2] Jalalzai, Farida & Rincker, Meg. (2018). Blood is Thicker than Water: Family Ties to Political Power Worldwide.. Historical Social Research / Historische Sozialforschung. 43. 54-72. 10.12759/hsr.43.2018.4.54-72. 
+
+### Image References:
+
+1. https://www.transcend.org/tms/wp-content/uploads/2017/09/colonialism-comic-2.jpg
+2. https://4.bp.blogspot.com/-HWd6y-dMWuw/WaMLenqzolI/AAAAAAAAF4Q/OvVfygvSzlErz_M7AuD_CrYGg96w0d8VgCLcBGAs/s1600/1.jpg
+3. https://neweasterneurope.eu/new_site/wp-content/uploads/2020/01/zareba-oligarchs-1024x660.jpg
