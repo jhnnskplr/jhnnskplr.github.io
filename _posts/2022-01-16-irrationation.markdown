@@ -47,6 +47,8 @@ These two facets are very easy to manipulate. If the voter confidence shrinks, b
 
 > When you live under such an oligarchy, there is always some crisis or the other that takes priority over boring stuff such as healthcare and pollution. If the nation is facing external invasion or diabolical subversion, who has the time to worry about overcrowded hospitals and polluted rivers? By manufacturing a never-ending stream of crises, a corrupt oligarchy can prolong its rule indefinitely. (21 Lessons for the 21st Centry, p.12)
 
+Certain crises such as war double politicial fanaticism. If you're such a fanatic, all you've got to do is to order your generals to somehow win the war. Now, winning war in the modern age (and of course, in history throughout) is not a feat that should be taken lightly. The eventualities, however, are tears, sweat and blood of soldiers and fanatically risen politicians. People begin to embrace such politicians with "nationalism", when the soliders who bled for the country go back to their civilian lives, or back to being soldiers without a war. It is quite certain that the highest gain out of winning a war is political, in a society of irrational minds. A populace whose minds are so bent that thinking clearly means a nuisance is a society - just like in Irrationation - which careens through to its downfall. 
+
 
 #### Societal Development
 
